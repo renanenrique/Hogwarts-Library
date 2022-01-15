@@ -1,14 +1,6 @@
-# Animais Fantásticos e Onde Habitam :unicorn: 
+# Animais Fantásticos e Onde Habitam 🦄 #
 
-
-
-! (https://2.bp.blogspot.com/-6PYYEds6E1Y/WV-v0XoaaOI/AAAAAAAACrI/js6K5w91_6wi-Db7mihqtPGMydnxo2Z_wCLcBGAs/s640/6019708122771945061-account_id%253D1.jpg)
-
-
-
-## *Sinopse:*
-
-:-------------------------------------------------------------------------------------------------------------------------------------------: 
+## *Sinopse:* ##
 
 A acromântula é uma aranha monstruosa de oito olhos e dotada de fala humana, foi desenvolvida pelos bruxos para guardar suas casas ou tesouros... O basilisco, também chamado de rei das cobras, é verde-vivo e pode alcançar até quinze metros de comprimento. Sua criação foi declarada ilegal, desde a época medieval. O dragão é o animal mais mágico do mundo; seu couro, sangue, coração, fígado e chifre têm grandes propriedades ilusionistas.
 
