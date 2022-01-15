@@ -1,14 +1,6 @@
 # O Livro Monstruoso dos Monstros :japanese_ogre: #
 
-
-
-!(http://pm1.narvii.com/6282/9c11d1a78dd14d0566a571d80d86dcc5d1bd74d7_00.jpg)
-
-
-
 ## *Sinopse:* ##
-
-:-------------------------------------------------------------------------------------------------------------------------------------------: 
 
 Depois de incidentes em que os livros atacavam um ao outro, o gerente da Floreios e Borrões prometeu nunca mais estocá-los; ele achou que a situação era pior do que quando todo o estoque do Livro Invisível da Invisibilidade desapareceu.
 
