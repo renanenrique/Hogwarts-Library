@@ -1,16 +1,5 @@
 # Quadribol Através dos Séculos :star2: :hourglass: #
 
-
-
-!(https://livrariadavila.vteximg.com.br/arquivos/ids/1442806-642-930/9788532531872.jpg?v=637763025278570000)
-
-
-
-## *Sinopse:*
-
-:-------------------------------------------------------------------------------------------------------------------------------------------: 
+## *Sinopse:* ##
 
 Já famoso por compor a Biblioteca Hogwarts, Quadribol através dos séculos acaba de ganhar uma edição completamente ilustrada em capa dura para bruxo (ou trouxa) nenhum colocar defeito! Escrito por Kennilworthy Whisp, pseudônimo de J.K. Rowling, com ilustrações de Emily Gravett. Quem leu toda a série Harry Potter já está familiarizado com o Quadribol – esporte típico dos bruxos e tão popular para eles quanto o futebol para os não-bruxos. No Quadribol, os jogadores ficam suspensos em suas vassouras durante a partida e cada time tem sete jogadores: um goleiro, dois batedores, três artilheiros e um apanhador. Como o nome sugere, quatro bolas são usadas por partida: um pomo de ouro, que é do tamanho de uma noz, tem asas prateadas e voa em altíssima velocidade pelo campo e tem que ser pega pelo apanhador (tarefa mais difícil do jogo e, ao mesmo tempo, fundamental para a vitória do time); dois balaços pretos, parecidos com bolas de beisebol, que devem ser defendidos pelos rebatedores; e a goles, uma bola vermelha, de trinta centímetros de diâmetro, que tem de ser rebatida pelos artilheiros para marcar o gol. O livro traz ilustrações das bolas em tamanho real. O livro revela ainda que os esportes com vassouras surgiram assim que as mesmas se aperfeiçoaram para permitir aos pilotos fazerem curvas e variarem de altitude e velocidade. Deles, foi justamente o Quadribol que se tornou mais conhecido. É do século XI o primeiro registro sobre o esporte: uma bruxa que vivia às margens do brejo Queerditch, relatou em seu diário, em poder do Museu do Quadribol em Londres, que um grupo de bruxos montados em suas vassouras jogavam bola, tentando acertar em troncos situados em cada lado do lugar, e pedras. Do século XI aos dias de hoje, o quadribol evoluiu até chegar ao que conhecemos através dos livros da série Harry Potter. O jovem Harry, devido à sua excepcional habilidade em voar na vassoura, é o apanhador de um dos times da Escola de Magia e Bruxaria de Hogwarts. No prefácio de Quadribol através dos séculos, a escritora escocesa J. K. Rowling, através do diretor da Escola de Magia e Bruxaria, professor Alvo Dumbledore, revela que resolveu liberar os originais do livro para os trouxas, ou seja, os não-bruxos, por uma boa causa: os direitos de publicação desta obra serão revertidos para a Comic Relief e Lumos, organizações humanitárias criadas por comediantes britânicos para ajudar crianças carentes. Eles usam o riso para combater a pobreza, a injustiça e a calamidade.
-
-
-
